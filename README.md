@@ -1,0 +1,1 @@
+# macOS_dictionary_pt-BR
